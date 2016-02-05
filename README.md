@@ -23,5 +23,10 @@ https://blogs.lcms.org/2014/video-castillo-fuerte
 
 ##Piura
 
+##Amazon
+
+###Mapping the Andean Amazon Project
+###http://maaproject.org/en/
+
 
 
